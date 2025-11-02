@@ -1,4 +1,4 @@
-# Hi, I'm Priyanka 🦖🌈
+# Hi, I'm Priyanka 🦖
 
 🚀 Software Engineer | 🔐 Security+ Certified | 🧠 ADHD-Fueled Problem Solver  
 
